@@ -1,1 +1,1 @@
-#Özet olarak doldurulacak.
+Özet olarak doldurulacak.
